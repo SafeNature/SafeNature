@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SafeNature
 - 👀 I’m interested in Future with crypto
-- 🌱 I’m currently learning about digital currency
+- 🌱 I’m currently learning on my new biggest project
 - 💞️ I’m looking to collaborate on ethereum etc.
 - 📫 How to reach me you can contact with me by email
 
